@@ -1,2 +1,0 @@
-# uzbkebimiod
-12asd
